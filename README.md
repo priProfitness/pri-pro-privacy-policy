@@ -1,4 +1,4 @@
-Privacy Policy for Pri Pro
+<b>Privacy Policy for Pri Pro<b>
 
 Privacy Policy
 Last updated: January 20, 2024
